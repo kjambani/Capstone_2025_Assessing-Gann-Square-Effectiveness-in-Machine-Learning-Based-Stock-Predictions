@@ -1,0 +1,1 @@
+# Capstone_2025_Assessing-Gann-Square-Effectiveness-in-Machine-Learning-Based-Stock-Predictions
